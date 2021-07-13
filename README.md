@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PON2020
-- 👀 I’m interested in research on psychology and language
+- 👀 I’m interested in psychology and language research
 - 💞️ I’m looking to collaborate on topics related to language processing, personality and emotion
 
 
