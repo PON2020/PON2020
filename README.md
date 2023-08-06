@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PON2020
+- 👋 Hi, I’m Harvey
 - 👀 I’m interested in psychology and language research.
 - 💞️ I’m looking to collaborate on topics related to language processing and individual differences.
 
